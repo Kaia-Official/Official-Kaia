@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Official-Kaia
 - 👀 I’m interested in collecting manly-perfume, travelling, doing fun activities, reading, and watching movies
-- 🌱 I’m currently learning various field of programming
+- 🌱 I’m currently learning programming
 - 💞️ I’m looking to collaborate: my 4th year IT crush, though he dont know me. 
 - 📫 How to reach me, add my FB account: Norcaya Pacaambung, GMAIL: pacaambungnorcaya@gmail.com
 - ⚡ Fun fact: Single since birth, not a vocal type of person, I easily got obssess on the things that i find attractive,
